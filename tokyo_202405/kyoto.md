@@ -1,4 +1,4 @@
-# Kyoto day trip from Shibuya/Tokyo
+# Kyoto day trip from Tokyo
 
 ### Travel Details
 
