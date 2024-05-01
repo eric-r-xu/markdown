@@ -1,3 +1,5 @@
+# Nikko day trip from Shibuya/Tokyo
+
 Nikko is a beautiful area renowned for its stunning shrines, beautiful nature, and historical significance:
 
 ### Morning: Departure & Arrival
