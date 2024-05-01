@@ -1,3 +1,5 @@
+# Kyoto day trip from Shibuya/Tokyo
+
 ### Travel Details
 
 *   **Distance:** Kyoto is about 450 kilometers (280 miles) from Tokyo.
