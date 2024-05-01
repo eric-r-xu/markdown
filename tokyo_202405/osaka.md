@@ -1,4 +1,4 @@
-# Osaka Day Trip
+# Osaka day trip from Tokyo
 
 Planning a day trip to Osaka from Tokyo is technically feasible but it's a very ambitious plan due to the distance between the two cities. Here's a breakdown of what such a trip might entail, including travel logistics and what you might be able to see and do in Osaka within a limited timeframe.
 
